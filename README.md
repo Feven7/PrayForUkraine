@@ -1,3 +1,4 @@
 # PrayForUkraine
+🇺🇦
 #PrayForUkraine  
 #StandForUkraine
